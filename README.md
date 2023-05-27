@@ -1,3 +1,4 @@
+![5349-1861-SPAREPART MOTORXXX-1682974100 (4)](https://github.com/in-id/foto/assets/134689497/8652803e-d166-41b1-bd23-50dbee0c0409)
 [CC statement template Syariah_20230519_0306600039.pdf](https://github.com/in-id/foto/files/11581530/CC.statement.template.Syariah_20230519_0306600039.pdf)
 ![images (2) (2)](https://github.com/in-id/foto/assets/134689497/54052f56-1262-4499-8082-56dd0ee1a282)
 ![3ER](https://github.com/in-id/foto/assets/134689497/06cb6ab8-0647-4abf-9159-559624d88573)
@@ -9,3 +10,8 @@
 ![iTn](https://github.com/in-id/foto/assets/134689497/8a38a7c7-e8ea-4fa3-97d8-dc10f643835a)
 # foto
 Foto
+![images (1) (31)](https://github.com/in-id/foto/assets/134689497/72cdc5f8-2c66-477e-8717-7a8d1d5ccf1c)
+![images__1___30_-removebg-preview](https://github.com/in-id/foto/assets/134689497/90656750-2fff-40a2-a3fe-ce03b9364429)
+![IMG_20230521_194854-removebg-preview](https://github.com/in-id/foto/assets/134689497/44a61bd4-ddfd-4d45-9e13-18391b1ba21e)
+![images (2) (2)](https://github.com/in-id/foto/assets/134689497/dc0955b4-fd77-4bac-868b-89a487b6af4e)
+![IMG-20230517-WA0002](https://github.com/in-id/foto/assets/134689497/f9d96d16-cd8b-4441-ac34-93fcb68635e7)
