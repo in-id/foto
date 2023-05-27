@@ -1,3 +1,4 @@
+[CC statement template Syariah_20230519_0306600039.pdf](https://github.com/in-id/foto/files/11581530/CC.statement.template.Syariah_20230519_0306600039.pdf)
 ![images (2) (2)](https://github.com/in-id/foto/assets/134689497/54052f56-1262-4499-8082-56dd0ee1a282)
 ![3ER](https://github.com/in-id/foto/assets/134689497/06cb6ab8-0647-4abf-9159-559624d88573)
 ![26-](https://github.com/in-id/foto/assets/134689497/d1537fb3-f656-40ff-baf4-427b6a2a9c70)
