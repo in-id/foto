@@ -1,3 +1,8 @@
+![Shopee](https://github.com/in-id/foto/assets/134689497/7f8946d3-95c4-4d5b-b7a9-e9fef46b696d)
+![images (18)](https://github.com/in-id/foto/assets/134689497/9dc07277-5f11-4679-b98b-4c84c6052c7d)
+![rtaImage](https://github.com/in-id/foto/assets/134689497/721e732a-81e0-40fa-a567-1170cb1ad731)
+![images-removebg-preview](https://github.com/in-id/foto/assets/134689497/cd53e14f-56de-4311-933e-b9256e752870)
+![images__7_-removebg-preview (1)](https://github.com/in-id/foto/assets/134689497/7459a155-6372-416a-8007-0ec716e810e3)
 ![5349-1861-SPAREPART MOTORXXX-1682974100 (4)](https://github.com/in-id/foto/assets/134689497/8652803e-d166-41b1-bd23-50dbee0c0409)
 [CC statement template Syariah_20230519_0306600039.pdf](https://github.com/in-id/foto/files/11581530/CC.statement.template.Syariah_20230519_0306600039.pdf)
 ![images (2) (2)](https://github.com/in-id/foto/assets/134689497/54052f56-1262-4499-8082-56dd0ee1a282)
