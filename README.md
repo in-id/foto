@@ -1,3 +1,7 @@
+![images (2) (7)](https://github.com/in-id/foto/assets/134689497/7291f6fe-1808-4a2d-bca8-c7b7ddd7336f)
+![images (2) (8)](https://github.com/in-id/foto/assets/134689497/b934c905-721c-4314-8061-d594809d853b)
+![shopejpg-20211103073514](https://github.com/in-id/foto/assets/134689497/c1fae061-8267-4142-b344-d90027707654)
+![images (2) (6)](https://github.com/in-id/foto/assets/134689497/7dac313d-ab7c-4696-8b4d-83a6584e34ae)
 ![Shopee](https://github.com/in-id/foto/assets/134689497/7f8946d3-95c4-4d5b-b7a9-e9fef46b696d)
 ![images (18)](https://github.com/in-id/foto/assets/134689497/9dc07277-5f11-4679-b98b-4c84c6052c7d)
 ![rtaImage](https://github.com/in-id/foto/assets/134689497/721e732a-81e0-40fa-a567-1170cb1ad731)
