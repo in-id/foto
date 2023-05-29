@@ -1,3 +1,5 @@
+![1682410055-WEB BANNER 794x366 - 2023-04-25T150620 426](https://github.com/in-id/foto/assets/134689497/1092738e-df61-485f-b902-8dbca2783da5)
+![Telkomsel-Logo](https://github.com/in-id/foto/assets/134689497/1a531ec7-9926-435d-8d38-08f6934787fb)
 ![images (1) (31)](https://github.com/in-id/foto/assets/134689497/7bfe365f-2359-4c5d-a16e-0b4e2660d759)
 ![images (1) (30)](https://github.com/in-id/foto/assets/134689497/ce3e4b3d-b0e4-45cc-813a-92bc2569b296)
 ![images (1) (27)](https://github.com/in-id/foto/assets/134689497/edf7d758-9867-4d85-9fe7-076e0615327e)
