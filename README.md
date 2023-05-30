@@ -44,3 +44,4 @@ Foto
 ![IMG_20230521_194854-removebg-preview](https://github.com/in-id/foto/assets/134689497/44a61bd4-ddfd-4d45-9e13-18391b1ba21e)
 ![images (2) (2)](https://github.com/in-id/foto/assets/134689497/dc0955b4-fd77-4bac-868b-89a487b6af4e)
 ![IMG-20230517-WA0002](https://github.com/in-id/foto/assets/134689497/f9d96d16-cd8b-4441-ac34-93fcb68635e7)
+![IMG_20230531_040925](https://github.com/in-id/foto/assets/134689497/3bd99088-06cf-4e61-8b2d-d817ee2759f6)
