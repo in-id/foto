@@ -1,3 +1,4 @@
+![download__1_-removebg-preview](https://github.com/in-id/foto/assets/134689497/a6e95955-6f17-4027-b0d8-1b53ebe8ce3d)
 ![X_v](https://github.com/in-id/foto/assets/134689497/963eb2e8-ec8a-4020-a21d-213c1d8a372b)
 ![download (1)](https://github.com/in-id/foto/assets/134689497/ce39098b-18b8-4bc0-bb4e-384b50b1f277)
 ![N27](https://github.com/in-id/foto/assets/134689497/d9dc3fd8-4a24-4300-86a0-2de1655fec85)
