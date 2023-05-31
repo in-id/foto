@@ -1,3 +1,8 @@
+![images (2) (9)](https://github.com/in-id/foto/assets/134689497/722a3798-e12b-4040-8da6-c16b59ea373d)
+![slider epbk](https://github.com/in-id/foto/assets/134689497/246a335d-9a2e-4412-aeb0-78b52fbea52e)
+![HPPslidedepanNormalnew](https://github.com/in-id/foto/assets/134689497/127223a4-8ad3-41a8-aea2-dc5cf87a84f9)
+![ereportingpps_0](https://github.com/in-id/foto/assets/134689497/d11c9166-e21d-4894-a314-c477111aa1b8)
+![NIKNPWPSlideDepanNormalnew](https://github.com/in-id/foto/assets/134689497/f846dcf9-db37-432e-875f-f52a7a3ccc04)
 ![popup-niknpwp](https://github.com/in-id/foto/assets/134689497/ac8d4ec2-c4ca-4653-a179-1e2ecbd4dc68)
 ![IMG-20230531-WA0030](https://github.com/in-id/foto/assets/134689497/b096d731-063f-4fc2-90bb-ce84d1d843c5)
 ![IMG_20230531_160148](https://github.com/in-id/foto/assets/134689497/ede032de-075f-4f7c-b65f-2dd150d8ca71)
