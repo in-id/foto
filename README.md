@@ -74,7 +74,10 @@
 Foto
 ![images (1) (31)](https://github.com/in-id/foto/assets/134689497/72cdc5f8-2c66-477e-8717-7a8d1d5ccf1c)
 ![images__1___30_-removebg-preview](https://github.com/in-id/foto/assets/134689497/90656750-2fff-40a2-a3fe-ce03b9364429)
-![IMG_20230521_194854-removebg-preview](https://github.com/in-id/foto/assets/134689497/44a61bd4-ddfd-4d45-9e13-18391b1ba21e)
+![IMG_20230521_194854-removebg-preview](https://github.com/in-id/![IMG_20230601_171447](https://github.com/in-id/foto/assets/134689497/08cea930-6328-4374-9442-2edad094ba2f)
+![IMG_20230601_171426](https://github.com/in-id/foto/assets/134689497/d59441fe-1779-4568-9ba6-c4c0d99edf49)
+![IMG_20230601_171400](https://github.com/in-id/foto/assets/134689497/26f6c7dc-aade-4d19-b858-19a1b61bb058)
+foto/assets/134689497/44a61bd4-ddfd-4d45-9e13-18391b1ba21e)
 ![images (2) (2)](https://github.com/in-id/foto/assets/134689497/dc0955b4-fd77-4bac-868b-89a487b6af4e)
 ![IMG-20230517-WA0002](https://github.com/in-id/foto/assets/134689497/f9d96d16-cd8b-4441-ac34-93fcb68635e7)
 ![IMG_20230531_040925](https://github.com/in-id/foto/assets/134689497/3bd99088-06cf-4e61-8b2d-d817ee2759f6)
